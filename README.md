@@ -1,5 +1,5 @@
 Boas vindas ao meu perfil 💙💙
-[https://tenor.com/pt-BR/view/taehyung-gif-26160732]
+
 
 Meu nome é Gabrielli.
 -Estou estudando na plataforma Alura
@@ -8,4 +8,4 @@ Meu nome é Gabrielli.
 
 Você não pode entrar em contato comigo 📫
 meu email esta indisponível no momento...
-![https://tenor.com/pt-BR/view/taehyung-gif-25592813]
+(https://tenor.com/pt-BR/view/taehyung-gif-25592813)
