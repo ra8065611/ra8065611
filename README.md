@@ -8,6 +8,5 @@ Meu nome é Gabrielli.
 
 Você não pode entrar em contato comigo 📫
 meu email esta indisponível no momento...
-![](![image](https://github.com/ra8065611/ra8065611/assets/170952971/0473f762-95a1-4e60-98fd-8bc908b33222)
-)
+![](![image](https://github.com/ra8065611/ra8065611/assets/170952971/0473f762-95a1-4e60-98fd-8bc908b33222))
 
