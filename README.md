@@ -1,4 +1,4 @@
-Boas vindas ao meu perfil 💙💙
+Boas vindas ao meu perfil 🌷🩷
 
 
 ![](https://media.tenor.com/Rgi_FYG-YJgAAAAM/v-v-bts.gif)
