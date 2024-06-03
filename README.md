@@ -8,4 +8,5 @@ Meu nome é Gabrielli.
 
 Você não pode entrar em contato comigo 📫
 meu email esta indisponível no momento...
-(https://tenor.com/pt-BR/view/taehyung-gif-25592813)
+(![Uploading image.png…]()
+)
