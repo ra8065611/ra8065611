@@ -6,7 +6,7 @@ Boas vindas ao meu perfil 🌷💟
 
 
 
-Meu nome é Gabrielli.
+Meu nome é Gabrielli. 🎀
 
 -Estou estudando na plataforma Alura
 
@@ -14,7 +14,7 @@ Meu nome é Gabrielli.
 
 -Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 
-Você não pode entrar em contato comigo 📫
+Você não pode entrar em contato comigo 📫📵
 
 meu email esta indisponível no momento...
  
