@@ -8,5 +8,4 @@ Meu nome é Gabrielli.
 
 Você não pode entrar em contato comigo 📫
 meu email esta indisponível no momento...
-(![Uploading image.png…]()
-)
+(![Uploading image.png…]())
